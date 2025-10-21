@@ -91,9 +91,7 @@ Divyansh Kumar Upadhyay
 
 Aspiring Data Analyst   
 
-LinkedIn Profile  
-
- [LinkedIn Profile](https://www.linkedin.com/in/divyansh-kumar-upadhyay-99b812253/)  
+[LinkedIn Profile](https://www.linkedin.com/in/divyansh-kumar-upadhyay-99b812253/)  
  
 [Email Me](mailto:divyansh3639@gmail.com)  
 
